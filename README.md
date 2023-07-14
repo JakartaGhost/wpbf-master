@@ -34,12 +34,12 @@
 
 </p>
 
-## ```How to install```
 
-[`Jakarta Ghost`]( )<br>
+
+[`Fuck Mastah`]( )<br>
 
 <p align="center">
-  <a href="https://www.instagram.com/t._.xshylh"><img src="https://f.top4top.io/p_207542cfh1.jpg" />
+  <a href="https://www.instagram.com/t._.xshylh"><img src="https://telegra.ph/file/3f5660643840da7f3793e.jpg" />
 </p>
 
 
